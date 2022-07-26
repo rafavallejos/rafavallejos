@@ -1,6 +1,6 @@
 ### I code and stuff 🌱
 
-⚡ Fun fact: I'm currently finishing #YoProgramo @ Argentina Programa.⚡
+⚡ Fun fact: I'm currently learning to code @ #YoProgramo - Argentina Programa.⚡
 
 
 
