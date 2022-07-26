@@ -1,5 +1,8 @@
 ### I code and stuff 🌱
 
+⚡ Fun fact: I'm currently finishing #YoProgramo @ Argentina Programa.⚡
+
+
 
 <!--
 **rafavallejos/rafavallejos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
