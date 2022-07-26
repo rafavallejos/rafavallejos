@@ -2,6 +2,7 @@
 
 ⚡ Fun fact: I'm currently learning to code @ #YoProgramo - Argentina Programa.⚡
 
+Don't ever forget to be excellent to each other and party on ✨
 
 
 <!--
